@@ -1,2 +1,2 @@
-# hazlumierez
+# hazlumiere
 fashion inspiration
